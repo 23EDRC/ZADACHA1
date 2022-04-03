@@ -1,1 +1,0 @@
-# ZADACHA1
